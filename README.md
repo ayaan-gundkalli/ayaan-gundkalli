@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ayaan-gundkalli
 - 👀 I’m interested in helping and being helped :)
-- 🌱 I’m currently learning Bachelor's in Cumputer Application 
+- 🌱 I’m currently learning Bachelor's in Computer Application 
 - 💞️ I’m looking to collaborate on future Projects
 - 📫 How to reach me gmail:- ayaangundkalli454@gmail.com
 - 😄 Pronouns: he/him
